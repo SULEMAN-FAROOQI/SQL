@@ -1,1 +1,1 @@
-Sql my nigga... cause i ma 
+Sql my nigga... cause i ma gonna kick your
